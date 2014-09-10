@@ -1,6 +1,6 @@
 # Your Favourite Very Bad Jokes
 
-Q: How do you get a horse out of the bathtub?
+Q: How do you get a horse out of the bath?
 A: Pull the plug!
 
 Q: What goes "ha ha bonk"?
